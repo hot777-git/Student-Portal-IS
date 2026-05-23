@@ -197,5 +197,5 @@ Accounts are created by either the Registrar or the Head Teacher of a department
 ## Contact
 
 **IT Department – Hawassa University**  
-📧 it@hwu.edu.et  
+📧 abrehamengida71@gmaii.com
 📍 Hawassa, Sidama Region, Ethiopia
